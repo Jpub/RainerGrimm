@@ -15,4 +15,4 @@
 
 
 
-[### 도서 소개 페이지 바로 가기 ###](http://http://jpub.tistory.com/826)
+[### 도서 소개 페이지 바로 가기 ###](http://jpub.tistory.com/826)
